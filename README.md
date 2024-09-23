@@ -1,2 +1,2 @@
 # WangYeqiang.github.io
-本人的一些情况（CV）
+[学术个人主页](https://wangyeqianger.github.io/WangYeqiang.github.io/)
